@@ -1,0 +1,2 @@
+# Mastering-AgilePM-A-Complete-Guide-to-the-Foundation-Exam.
+Prepare for the APMG AgilePM Foundation Exam with PassCertHub! This complete guide covers exam objectives, study tips, sample questions, and resources to help you pass with confidence. Ideal for Agile project management beginners and professionals aiming for certification success.
